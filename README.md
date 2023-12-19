@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gills2
+- 👋 Hi, I’m @m0th2
 - 👀 I’m interested in [art]
 - 🌱 I’m currently learning [uhhhh]
 - 📫 How to reach me [IG: 64moth]
